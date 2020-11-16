@@ -15,23 +15,29 @@ Nós vivemos da ousadia de provocar e temos propostas audaciosas, mesmo. Não te
 
 ### **NOSSAS OPORTUNIDADES:**
 
+**[DEVOPS ENGINEER - CÓD. 71 (REMOTO)](https://bit.ly/3oQvf1f)** SÃO PAULO / SP
+
+**[TECH LEAD (JAVA) - CÓD. 90 (REMOTO)](https://bit.ly/3pbakpN)** SÃO PAULO / SP
+
+**[PESSOA DESENVOLVEDORA REACT SR CÓD. 108](https://bit.ly/3eJBzTi)** SÃO PAULO / SP
+
 **[PESSOA DESENVOLVEDORA BACKEND SR. (JAVA) - CÓD.114](https://bit.ly/35fEjFc)** SÃO PAULO / SP
+
+**[APPLICATION MANAGEMENT SERVICES - MANAGER CÓD. 119 (REMOTO)](https://bit.ly/38nsFdf)** SÃO PAULO / SP
+
+**[PESSOA DESENVOLVEDORA ANGULAR CÓD. 124 (REMOTO)](https://bit.ly/2U009pE)** SÃO PAULO / SP
+
+**[QA - QUALITY ASSURANCE CÓD. 126 (REMOTO)](https://bit.ly/38bo0uI)** SÃO PAULO / SP
 
 **[PESSOA DESENVOLVEDORA JAVA SÊNIOR (REMOTO) - CÓD. 128 ](https://bit.ly/3pfoPbU)** SÃO PAULO / SP
 
 **[PESSOA DESENVOLVEDORA JAVA SÊNIOR - CÓD. 129 (REMOTO) ](https://bit.ly/36ijx6Z)** SÃO PAULO / SP
 
-**[PESSOA DESENVOLVEDORA REACT SR CÓD. 108](https://bit.ly/3eJBzTi)** SÃO PAULO / SP
+**[PESSOA DESENVOLVEDORA DE API E INTEGRAÇÕES - CÓD. 135 (REMOTO)](https://bit.ly/3lI12Q4)** SÃO PAULO /SP
 
-**[PESSOA DESENVOLVEDORA ANGULAR CÓD. 124 (REMOTO)](https://bit.ly/2U009pE)** SÃO PAULO / SP
+**[PESSOA ARQUITETA DE INTEGRAÇÕES CÓD. 136 (REMOTO)](https://bit.ly/3lFmAfS)** SÃO PAULO / SP
 
-**[DEVOPS ENGINEER - CÓD. 71 (REMOTO)](https://bit.ly/3oQvf1f)** SÃO PAULO / SP
-
-**[APPLICATION MANAGEMENT SERVICES - MANAGER CÓD. 119 (REMOTO)](https://bit.ly/38nsFdf)** SÃO PAULO / SP
-
-**[QA - QUALITY ASSURANCE CÓD. 126 (REMOTO)](https://bit.ly/38bo0uI)** SÃO PAULO / SP
-
-**[TECH LEAD (JAVA) - CÓD. 90 (REMOTO)](https://bit.ly/3pbakpN)** SÃO PAULO / SP
+**[PESSOA DESENVOLVEDORA REACT CÓD.137](https://bit.ly/38IqWzo)** SÃO PAULO / SP
 
 ### INFORMAÇÕES ADICIONAIS
 
