@@ -15,15 +15,21 @@ Nós vivemos da ousadia de provocar e temos propostas audaciosas, mesmo. Não te
 
 ### **NOSSAS OPORTUNIDADES:**
 
-**[DEVOPS ENGINEER - CÓD. 71 (REMOTO)](https://bit.ly/3oQvf1f)** SÃO PAULO / SP
-
 **[APPLICATION MANAGEMENT SERVICES - MANAGER CÓD. 119 (REMOTO)](https://bit.ly/38nsFdf)** SÃO PAULO / SP
 
-**[PESSOA DESENVOLVEDORA ANGULAR CÓD. 124 (REMOTO)](https://bit.ly/2U009pE)** SÃO PAULO / SP
+**[SYSADMIN CÓD. 122 (REMOTO)](https://bit.ly/36X6SIj)** SÃO PAULO / SP
+
+**[CLOUD ENGINEER CÓD. 123 (REMOTO)](https://bit.ly/3m5ZO0p)** SÃO PAULO / SP
 
 **[QA - QUALITY ASSURANCE CÓD. 126 (REMOTO)](https://bit.ly/38bo0uI)** SÃO PAULO / SP
 
+**[AGILE MASTER CÓD, 127 (REMOTO)](https://bit.ly/2IbJpJW)** SÃO PAULO / SP
+
+**[UX/UI SENIOR CÓD. 130 (REMOTO)](https://bit.ly/2JNPvAp)** SÃO PAULO / SP
+
 **[PESSOA DESENVOLVEDORA REACT CÓD.137](https://bit.ly/38IqWzo)** SÃO PAULO / SP
+
+**[PESSOA ARQUITETA DE INTEGRAÇÕES - CÓD. 141 (REMOTO)](https://bit.ly/33X8os5)** SÃO PAILO / SP
 
 **[PESSOA DESENVOLVEDORA DE API E INTEGRAÇÕES CÓD. 147 (REMOTO)](https://bit.ly/3lFmAfS)** SÃO PAULO / SP
 
