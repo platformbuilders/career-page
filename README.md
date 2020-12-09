@@ -29,10 +29,6 @@ Nós vivemos da ousadia de provocar e temos propostas audaciosas, mesmo. Não te
 
 **[PESSOA DESENVOLVEDORA REACT CÓD.137](https://bit.ly/38IqWzo)** SÃO PAULO / SP
 
-**[PESSOA ARQUITETA DE INTEGRAÇÕES - CÓD. 141 (REMOTO)](https://bit.ly/33X8os5)** SÃO PAILO / SP
-
-**[PESSOA DESENVOLVEDORA DE API E INTEGRAÇÕES CÓD. 147 (REMOTO)](https://bit.ly/3lFmAfS)** SÃO PAULO / SP
-
 ### INFORMAÇÕES ADICIONAIS
 
 - Oportunidades reais de empreender e impactar
