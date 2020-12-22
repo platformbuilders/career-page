@@ -17,8 +17,6 @@ Nós vivemos da ousadia de provocar e temos propostas audaciosas, mesmo. Não te
 
 **[APPLICATION MANAGEMENT SERVICES - MANAGER CÓD. 119 (REMOTO)](https://bit.ly/38nsFdf)** SÃO PAULO / SP
 
-**[CLOUD ENGINEER CÓD. 123 (REMOTO)](https://bit.ly/3m5ZO0p)** SÃO PAULO / SP
-
 **[PESSOA DESENVOLVEDORA REACT CÓD.137](https://bit.ly/38IqWzo)** SÃO PAULO / SP
 
 **[PESSOA DESENVOLVEDORA BACKEND JAVA CÓD. 158](https://bit.ly/3h0fe55)** SÃO PAULO / SP
