@@ -19,9 +19,9 @@ Nós vivemos da ousadia de provocar e temos propostas audaciosas, mesmo. Não te
 
 **[PESSOA DESENVOLVEDORA REACT CÓD.137](https://bit.ly/38IqWzo)** SÃO PAULO / SP
 
-**[PESSOA DESENVOLVEDORA BACKEND JAVA CÓD. 158](https://bit.ly/3h0fe55)** SÃO PAULO / SP
+**[PESSOA DESENVOLVEDORA BACKEND JAVA CÓD. 158 (REMOTO)](https://bit.ly/3h0fe55)** SÃO PAULO / SP
 
-**[PESSOA DESENVOLVEDORA BACKEND JAVA (VRAPTOR) CÓD. 160](http://bit.ly/2WGbQDj)** SÃO PAULO / SP
+**[PESSOA DESENVOLVEDORA BACKEND JAVA (VRAPTOR) CÓD. 160 (REMOTO) ](http://bit.ly/2WGbQDj)** SÃO PAULO / SP
 
 ### INFORMAÇÕES ADICIONAIS
 
