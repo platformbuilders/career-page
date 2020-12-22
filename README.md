@@ -17,17 +17,13 @@ Nós vivemos da ousadia de provocar e temos propostas audaciosas, mesmo. Não te
 
 **[APPLICATION MANAGEMENT SERVICES - MANAGER CÓD. 119 (REMOTO)](https://bit.ly/38nsFdf)** SÃO PAULO / SP
 
-**[SYSADMIN CÓD. 122 (REMOTO)](https://bit.ly/36X6SIj)** SÃO PAULO / SP
-
 **[CLOUD ENGINEER CÓD. 123 (REMOTO)](https://bit.ly/3m5ZO0p)** SÃO PAULO / SP
 
-**[QA - QUALITY ASSURANCE CÓD. 126 (REMOTO)](https://bit.ly/38bo0uI)** SÃO PAULO / SP
-
-**[AGILE MASTER CÓD, 127 (REMOTO)](https://bit.ly/2IbJpJW)** SÃO PAULO / SP
-
-**[UX/UI SENIOR CÓD. 130 (REMOTO)](https://bit.ly/2JNPvAp)** SÃO PAULO / SP
-
 **[PESSOA DESENVOLVEDORA REACT CÓD.137](https://bit.ly/38IqWzo)** SÃO PAULO / SP
+
+**[PESSOA DESENVOLVEDORA BACKEND JAVA CÓD. 158](https://bit.ly/3h0fe55)** SÃO PAULO / SP
+
+**[PESSOA DESENVOLVEDORA BACKEND JAVA (VRAPTOR) CÓD. 160](http://bit.ly/2WGbQDj)** SÃO PAULO / SP
 
 ### INFORMAÇÕES ADICIONAIS
 
