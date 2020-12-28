@@ -23,7 +23,7 @@ Nós vivemos da ousadia de provocar e temos propostas audaciosas, mesmo. Não te
 
 **[PESSOA DESENVOLVEDORA BACKEND JAVA (VRAPTOR) CÓD. 160 (REMOTO) ](http://bit.ly/2WGbQDj)** SÃO PAULO / SP
 
-**[PROFESSIONAL SERVICES LEADER - CÓD. 161] (http://bit.ly/34ODJh4)** SÃO PAULO / SP
+**[PROFESSIONAL SERVICES LEADER - CÓD. 161](http://bit.ly/34ODJh4)** SÃO PAULO / SP
 
 ### INFORMAÇÕES ADICIONAIS
 
