@@ -17,11 +17,11 @@ Nós vivemos da ousadia de provocar e temos propostas audaciosas, mesmo. Não te
 
 **[APPLICATION MANAGEMENT SERVICES - MANAGER CÓD. 119 (REMOTO)](https://bit.ly/38nsFdf)** SÃO PAULO / SP
 
-**[PESSOA DESENVOLVEDORA REACT CÓD.137](https://bit.ly/38IqWzo)** SÃO PAULO / SP
+**[PESSOA DESENVOLVEDORA BACKEND JAVA CÓD. 169 (REMOTO)](http://bit.ly/38S013O)** SÃO PAULO / SP
 
-**[PESSOA DESENVOLVEDORA BACKEND JAVA CÓD. 158 (REMOTO)](https://bit.ly/3h0fe55)** SÃO PAULO / SP
+**[PESSOA DESENVOLVEDORA REACT NATIVE CÓD.170 (REMOTO)](http://bit.ly/3iqHvCw)** SÃO PAULO / SP
 
-**[PESSOA DESENVOLVEDORA BACKEND JAVA (VRAPTOR) CÓD. 160 (REMOTO) ](http://bit.ly/2WGbQDj)** SÃO PAULO / SP
+**[PESSOA DESENVOLVEDORA REACT CÓD.172](http://bit.ly/3sAfxcn)** SÃO PAULO / SP
 
 **[PROFESSIONAL SERVICES LEADER - CÓD. 161](http://bit.ly/34ODJh4)** SÃO PAULO / SP
 
