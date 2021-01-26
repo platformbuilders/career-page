@@ -15,7 +15,7 @@ Nós vivemos da ousadia de provocar e temos propostas audaciosas, mesmo. Não te
 
 ### **NOSSAS OPORTUNIDADES:**
 
-**[APPLICATION MANAGEMENT SERVICES - MANAGER CÓD. 119 (REMOTO)](https://bit.ly/38nsFdf)** SÃO PAULO / SP
+**[PROFESSIONAL SERVICES LEADER - CÓD. 161](http://bit.ly/34ODJh4)** SÃO PAULO / SP
 
 **[PESSOA DESENVOLVEDORA BACKEND JAVA CÓD. 169 (REMOTO)](http://bit.ly/38S013O)** SÃO PAULO / SP
 
@@ -23,7 +23,17 @@ Nós vivemos da ousadia de provocar e temos propostas audaciosas, mesmo. Não te
 
 **[PESSOA DESENVOLVEDORA REACT CÓD.172](http://bit.ly/3sAfxcn)** SÃO PAULO / SP
 
-**[PROFESSIONAL SERVICES LEADER - CÓD. 161](http://bit.ly/34ODJh4)** SÃO PAULO / SP
+**[PESSOA DESENVOLVEDORA BACKEND JAVA CÓD. 174 (REMOTO)](https://bit.ly/35QILK9)** SÃO PAULO / SP
+
+**[PESSOA DESENVOLVEDORA BACKEND JAVA CÓD. 177 (REMOTO)](http://bit.ly/3a91zWo)** SÃO PAULO / SP
+
+**[Pessoa Desenvolvedora de API e Integrações - Cód 189 (Remoto](http://bit.ly/2Mr4O3c)** SÃO PAULO / SP
+
+**[Pessoa Arquiteta de Soluções - Cód 190 (Remoto)](http://bit.ly/36adPEY)** SÃO PAULO / SP
+
+**[Pessoa Tech Lead (Java) - Cód 191 (Remoto)](http://bit.ly/3cdvI9W)** SÃO PAULO / SP
+
+**[PESSOA DESENVOLVEDORA BACKEND JAVA CÓD. 195 (REMOTO)](http://bit.ly/2M4gskV)** SÃO PAULO / SP
 
 ### INFORMAÇÕES ADICIONAIS
 
