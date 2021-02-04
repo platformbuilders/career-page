@@ -19,21 +19,31 @@ Nós vivemos da ousadia de provocar e temos propostas audaciosas, mesmo. Não te
 
 **[PESSOA DESENVOLVEDORA BACKEND JAVA CÓD. 169 (REMOTO)](http://bit.ly/38S013O)** SÃO PAULO / SP
 
-**[PESSOA DESENVOLVEDORA REACT NATIVE CÓD.170 (REMOTO)](http://bit.ly/3iqHvCw)** SÃO PAULO / SP
-
 **[PESSOA DESENVOLVEDORA REACT CÓD.172](http://bit.ly/3sAfxcn)** SÃO PAULO / SP
 
-**[PESSOA DESENVOLVEDORA BACKEND JAVA CÓD. 174 (REMOTO)](https://bit.ly/35QILK9)** SÃO PAULO / SP
-
 **[PESSOA DESENVOLVEDORA BACKEND JAVA CÓD. 177 (REMOTO)](http://bit.ly/3a91zWo)** SÃO PAULO / SP
+
+**[PROFESSIONAL SERVICES LEADER - CÓD. 183](http://bit.ly/3ay4590)** SÃO PAULO / SP
+
+**[PESSOA DESENVOLVEDORA .NET SÊNIOR - CÓD 184 (REMOTO)](http://bit.ly/2VUZDu8)** SÃO PAULO / SP
+
+**[PESSOA DESENVOLVEDORA REACT NATIVE SÊNIOR - CÓD 185 (REMOTO)](http://bit.ly/36HpgUN)** SÃO PAULO / SP
 
 **[Pessoa Desenvolvedora de API e Integrações - Cód 189 (Remoto](http://bit.ly/2Mr4O3c)** SÃO PAULO / SP
 
 **[Pessoa Arquiteta de Soluções - Cód 190 (Remoto)](http://bit.ly/36adPEY)** SÃO PAULO / SP
 
-**[Pessoa Tech Lead (Java) - Cód 191 (Remoto)](http://bit.ly/3cdvI9W)** SÃO PAULO / SP
+**[PESSOA TECH LEAD (Java) - Cód 191 (Remoto)](http://bit.ly/3cdvI9W)** SÃO PAULO / SP
 
 **[PESSOA DESENVOLVEDORA BACKEND JAVA CÓD. 195 (REMOTO)](http://bit.ly/2M4gskV)** SÃO PAULO / SP
+
+**[PESSOA DESENVOLVEDORA BACKEND JAVA CÓD. 196 (REMOTO)](http://bit.ly/3rsJJF7)** SÃO PAULO / SP
+
+**[PESSOA DESENVOLVEDORA REACT NATIVE CÓD. 197 (REMOTO)](http://bit.ly/3pNGs2I)** SÃO PAULO / SP
+
+**[PESSOA DESENVOLVEDORA ANGULAR CÓD. 198 (REMOTO)](http://bit.ly/39Seiy5)** SÃO PAULO / SP
+
+**[PESSOA TECH LEAD (Java) - Cód 199 (REMOTO)](http://bit.ly/3cdvI9W)** SÃO PAULO / SP
 
 ### INFORMAÇÕES ADICIONAIS
 
