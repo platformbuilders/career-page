@@ -15,8 +15,6 @@ Nós vivemos da ousadia de provocar e temos propostas audaciosas, mesmo. Não te
 
 ### **NOSSAS OPORTUNIDADES:**
 
-**[PESSOA DESENVOLVEDORA BACKEND JAVA CÓD. 169 (REMOTO)](http://bit.ly/38S013O)** SÃO PAULO / SP
-
 **[PESSOA DESENVOLVEDORA REACT CÓD.172](http://bit.ly/3sAfxcn)** SÃO PAULO / SP
 
 **[PESSOA DESENVOLVEDORA .NET SÊNIOR - CÓD 184 (REMOTO)](http://bit.ly/2VUZDu8)** SÃO PAULO / SP
@@ -25,9 +23,9 @@ Nós vivemos da ousadia de provocar e temos propostas audaciosas, mesmo. Não te
 
 **[Pessoa Arquiteta de Soluções - Cód 190 (Remoto)](http://bit.ly/36adPEY)** SÃO PAULO / SP
 
-**[PESSOA TECH LEAD (Java) - Cód 191 (Remoto)](http://bit.ly/3cdvI9W)** SÃO PAULO / SP
-
 **[PESSOA DESENVOLVEDORA ANGULAR CÓD. 198 (REMOTO)](http://bit.ly/39Seiy5)** SÃO PAULO / SP
+
+**[PESSOA DESENVOLVEDORA JAVA SR CÓD.216 (REMOTO)](http://bit.ly/2NTzTO9)** SÃO PAULO / SP
 
 ### INFORMAÇÕES ADICIONAIS
 
