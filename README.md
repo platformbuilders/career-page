@@ -21,11 +21,23 @@ Nós vivemos da ousadia de provocar e temos propostas audaciosas, mesmo. Não te
 
 **[PESSOA DESENVOLVEDORA REACT NATIVE SÊNIOR - CÓD 185 (REMOTO)](http://bit.ly/36HpgUN)** SÃO PAULO / SP
 
-**[Pessoa Arquiteta de Soluções - Cód 190 (Remoto)](http://bit.ly/36adPEY)** SÃO PAULO / SP
-
 **[PESSOA DESENVOLVEDORA ANGULAR CÓD. 198 (REMOTO)](http://bit.ly/39Seiy5)** SÃO PAULO / SP
 
 **[PESSOA DESENVOLVEDORA JAVA SR CÓD.216 (REMOTO)](http://bit.ly/2NTzTO9)** SÃO PAULO / SP
+
+**[PESSOA ARQUITETA DE INTEGRAÇÕES MULESOFT - CÓD. 220 (REMOTO)](http://bit.ly/2NolIk7)** SÃO PAULO / SP
+
+**[PESSOA DESENVOLVEDORA DE API E INTEGRAÇÕES - CÓD. 221 (REMOTO)](https://bit.ly/3lkGEVw)** SÃO PAULO / SP
+
+**[PESSOA ARQUITETA DE INTEGRAÇÕES CÓD. 222 (REMOTO)](http://bit.ly/3cFPrxx)** SÃO PAULO / SP
+
+**[PESSOA DESENVOLVEDORA DE APIS REST SR - CÓD. 223 (REMOTO)](http://bit.ly/3rTl9xH)** SÃO PAULO / SP
+
+**[PESSOA DESENVOLVEDORA JAVA - CÓD. 225 (REMOTO)](http://bit.ly/3eJvuZ7)** SÃO PAULO / SP
+
+**[PESSOA DESENVOLVEDORA JAVA - CÓD. 230 (REMOTO)](http://bit.ly/3cuEcYs)** SÃO PAULO / SP
+
+**[PESSOA DESENVOLVEDORA JAVA - CÓD. 231 (REMOTO)](http://bit.ly/2Q1vfyk)** SÃO PAULO / SP
 
 ### INFORMAÇÕES ADICIONAIS
 
