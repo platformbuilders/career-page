@@ -15,29 +15,27 @@ Nós vivemos da ousadia de provocar e temos propostas audaciosas, mesmo. Não te
 
 ### **NOSSAS OPORTUNIDADES:**
 
-**[PESSOA DESENVOLVEDORA REACT CÓD.172](http://bit.ly/3sAfxcn)** SÃO PAULO / SP
+#### **CMS**
 
-**[PESSOA DESENVOLVEDORA .NET SÊNIOR - CÓD 184 (REMOTO)](http://bit.ly/2VUZDu8)** SÃO PAULO / SP
+**[SENIOR .NET DEVELOPER CÓD.260](https://bit.ly/3gXtPAs)** REMOTO
 
-**[PESSOA DESENVOLVEDORA REACT NATIVE SÊNIOR - CÓD 185 (REMOTO)](http://bit.ly/36HpgUN)** SÃO PAULO / SP
+**[SENIOR .NET SOLUTIONS ARCHITECT CÓD.238](https://bit.ly/3nKeBjJ)** REMOTO
 
-**[PESSOA DESENVOLVEDORA ANGULAR CÓD. 198 (REMOTO)](http://bit.ly/39Seiy5)** SÃO PAULO / SP
+#### **DIGITALS**
 
-**[PESSOA DESENVOLVEDORA JAVA SR CÓD.216 (REMOTO)](http://bit.ly/2NTzTO9)** SÃO PAULO / SP
+**[SENIOR REACT DEVELOPER - CÓD.251](https://bit.ly/3eeXlQi)** REMOTO
 
-**[PESSOA ARQUITETA DE INTEGRAÇÕES MULESOFT - CÓD. 220 (REMOTO)](http://bit.ly/2NolIk7)** SÃO PAULO / SP
+**[SENIOR REACT NATIVE DEVELOPER - CÓD 241](https://bit.ly/3eRo18P)** REMOTO
 
-**[PESSOA DESENVOLVEDORA DE API E INTEGRAÇÕES - CÓD. 221 (REMOTO)](https://bit.ly/3lkGEVw)** SÃO PAULO / SP
+#### **ENGENHARIA**
 
-**[PESSOA ARQUITETA DE INTEGRAÇÕES CÓD. 222 (REMOTO)](http://bit.ly/3cFPrxx)** SÃO PAULO / SP
+**[JAVA SOLUTIONS ARCHITECT - CÓD. 243)](https://bit.ly/3uvHimM)** REMOTO
 
-**[PESSOA DESENVOLVEDORA DE APIS REST SR - CÓD. 223 (REMOTO)](http://bit.ly/3rTl9xH)** SÃO PAULO / SP
+**[JAVA SPECIALIST - CÓD. 230 ](https://bit.ly/2QWVd6V)** REMOTO
 
-**[PESSOA DESENVOLVEDORA JAVA - CÓD. 225 (REMOTO)](http://bit.ly/3eJvuZ7)** SÃO PAULO / SP
+**[QUALITY ASSURANCE - CÓD 246](https://bit.ly/3lkGEVw)** REMOTO
 
-**[PESSOA DESENVOLVEDORA JAVA - CÓD. 230 (REMOTO)](http://bit.ly/3cuEcYs)** SÃO PAULO / SP
-
-**[PESSOA DESENVOLVEDORA JAVA - CÓD. 231 (REMOTO)](http://bit.ly/2Q1vfyk)** SÃO PAULO / SP
+**[SENIOR MULESOFT API INTEGRATION DEVELOPER - CÓD. 244 ](https://bit.ly/3xLgwJc)** REMOTO
 
 ### INFORMAÇÕES ADICIONAIS
 
